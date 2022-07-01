@@ -1,2 +1,2 @@
-# why-hitler-is-good
-he is not.
+# Why hitler and stabbing people is good.
+they arent.
